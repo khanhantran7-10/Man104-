@@ -4,3 +4,4 @@ SS3 bài 2 câu vẽ sơ đồ https://ajpwjlh61s6h.jp.larksuite.com/docx/KYAQd5
 SS5 bài 1 https://docs.google.com/spreadsheets/d/1sCEaJhJreFT4GTKtsCOZjtTRcI6rUo5TRJY54OZadGE/edit?gid=36452468#gid=36452468 
 
 SS6 nvu 1 https://docs.google.com/spreadsheets/d/1c9xR4lBUStaTu1C0cC9FqjtvP09BUfvCZ49VW8i3Gs0/edit?gid=270864774#gid=270864774
+Bảng btvn ss19 https://ajpwjlh61s6h.jp.larksuite.com/docx/XctRd3u19orUlExweIsj31JhpMb?blockId=doxjpUKtTCHLLghGcrJK09MSdSc&blockToken=NqbYwDsJahSIEDbq5kkjALKnpuh&blockType=whiteboard&doc_app_id=501
